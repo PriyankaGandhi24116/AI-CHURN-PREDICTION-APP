@@ -431,7 +431,7 @@ the application helps businesses understand customer churn and take proactive ac
 https://github.com/PriyankaGandhi24116
 
 🔗 **LinkedIn:**  
-https://www.linkedin.com/in/priyanka-gandhi-80abaa430/
+https://www.linkedin.com/in/priyanka-gandhi-b951b2436
 
 ---
 
